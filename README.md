@@ -1,7 +1,6 @@
-## Hi, I'm Jabez ✨
+## Hi, I'm Jabez 
 
-# 💫 About Me:
-Currently focusing on improving my coding proficiency<br><br>Always eager to learn new things <br><br>ART and TECH never bores anyone<br><br>
+# <br>ART and TECH never bores anyone<br><br>
 
 
 ## 🌐 Socials:
